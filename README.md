@@ -1,9 +1,8 @@
 # Happy World
 
-Dayanee here, nice to be in the Earth, and many people, who live in this earth
-one thing i must telling you . 
-Approximately in two week ago from here we have lost dearest one she had pass away on this day early in the morning 
-and she was very gentle. 
-
-Rg Dayanee
-            
+Dayanee here.. But one thing i must tell you that i have a problem with this type of funtions  
+It is the first time i followed this type of course an so on...
+on week one n two i have not yet started... in c..
+help me to solve the problem.. 
+it's quiet hard to do so.. im interest to do it... 
+Thank you... 
